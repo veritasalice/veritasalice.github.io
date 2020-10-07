@@ -1,1 +1,0 @@
-# veritasalice.github.io
